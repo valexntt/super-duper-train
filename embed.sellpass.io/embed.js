@@ -1,1 +1,0 @@
-No Content: https://yams-services.cc/embed.sellpass.io/embed.js
